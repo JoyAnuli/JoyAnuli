@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoyAnuli
+- 👀 I’m interested in everything in github
+- 🌱 I’m currently learning collaborative coding
+- 💞️ I’m looking to collaborate on codes
+- 📫 How to reach me ... You can reach me via my email. joyassumpta416@gmail.com.
